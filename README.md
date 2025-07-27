@@ -1,0 +1,1 @@
+# Mingau.app.chat.ai.com
